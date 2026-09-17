@@ -1,1 +1,1 @@
-# kseojinn.github.io
+# Seo-Jin Kang
